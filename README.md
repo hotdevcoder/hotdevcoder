@@ -9,8 +9,7 @@ With over 10 years of experience as a full-stack engineer, I have developed a pa
 
 ## Contact Information
 
-- Email: seniordev0315@gmail.com
-- Phone: 3523664005
+- Email: isbhh8484@gmail.com
 
 ## Professional Achievements
 
